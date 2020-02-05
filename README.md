@@ -1,0 +1,1 @@
+# GTH-responsive-HTML-Template
